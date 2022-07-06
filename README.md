@@ -1,0 +1,4 @@
+- 👋 Hi, I’m djbiery
+- 👀 I’m interested in technology, gaming, and computers
+- 🌱 I’m currently learning to code as well as cybersecurity
+- 📫 How to reach me: nothing so far
